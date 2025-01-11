@@ -16,8 +16,8 @@
   In other parts of India, the film earned an additional **₹15 crores** gross, approximately **$1.8 million**.  
 
 - **✈️ Overseas Markets**:  
-  The film saw tremendous love internationally, contributing around **$2 million** (roughly **₹16 crores**) to its opening day earnings. 🌎  
-
+  The film saw tremendous love internationally, contributing around **$2 million** (roughly **₹16 crores**) to its opening day earnings. 🌎
+  
 ---
 
 ## 🏗️ Pre-Release Business  
